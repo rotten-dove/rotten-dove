@@ -2,8 +2,16 @@
 
 <div align="center">
 
-${{\color{#ff69b4}{\textsf{ ts a wip?!? }}}}$
+${{\color{#ff69b4}{\textsf{ ts is  wip ♡ }}}}$
 
-[rentry err err](https://rentry.co/fyodorbunny)
+</div>
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=ff69b4)
+<div align="left">
+
+[pronouns cc](https://pronouns.cc/@fyobunny)
+
+</div>
+
+<div align="right">
+
+![](https://komarev.com/ghpvc/?username=rotten-dove&base=1100&label=fyodorlings&color=ff69b4&style=plastic) 
