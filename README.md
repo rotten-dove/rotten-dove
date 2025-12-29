@@ -16,7 +16,7 @@
 
 <div align="center">
   
-[pr](https://pronouns.cc/@fyobunny)ns ·
+  [pr](https://pronouns.cc/@fyobunny)ns · [dni & byi](https://rentry.co/awritersdiary) · 
 [ata](https://rat-dove.atabook.org/)book · [straw](https://rottendoveling.straw.page)page
 
 ![](https://file.garden/aUdioCvDzBVqDEbf/Untitled22_20251228050139.png) 
