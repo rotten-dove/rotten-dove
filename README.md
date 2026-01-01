@@ -2,6 +2,8 @@
 
 <div align="center">
 
+${{\color{#304473}{\textsf{ p.s: this readme looks better  }}}}$ ${{\color{#304473}{\textsf{ viewed on a mobile device.   }}}}$ ${{\color{#304473}{\textsf{ (phones, specifically)   }}}}$
+
 ![](https://file.garden/aUdioCvDzBVqDEbf/Untitled22_20251228050120.png) 
 
 ![](https://file.garden/aUdioCvDzBVqDEbf/Untitled21_20251228043855__fliter--warm-sea__channel--red__mode--lighten.png)  
