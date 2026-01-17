@@ -4,13 +4,17 @@
 
 ![](https://file.garden/aUdioCvDzBVqDEbf/Untitled47_20260117055956.png)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F1E7DB&width=435&lines=“fantastic%2C+how+fantastic+you+are.”)](https://git.io/typing-svg) 
+</div> 
 
-˚₊‧꒰ა ![](https://komarev.com/ghpvc/?username=rotten-dove&base=920&label=dead+souls&color=F1E7DB&style=plastic) ໒꒱ ‧₊˚
+<div align="center">
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=969AD0&width=435&lines=“Man+fears+the+darkness.”)](https://git.io/typing-svg) 
+
+˚₊‧꒰ა ![](https://komarev.com/ghpvc/?username=rotten-dove&base=920&label=dead+souls&color=969AD0&style=plastic) ໒꒱ ‧₊˚
 
 </div>
 
 <div align="center">
   
-  [pr](https://pronouns.cc/@fyobunny)${{\color{#F1E7DB}{\textsf{ns }}}}$ · [dni & byi](https://rentry.co/awritersdiary) · 
-[ata](https://rat-dove.atabook.org/)${{\color{#F1E7DB}{\textsf{book }}}}$ [straw](https://rottendoveling.straw.page)${{\color{#F1E7DB}{\textsf{page }}}}$
+  [pr](https://pronouns.cc/@fyobunny)${{\color{#969AD0}{\textsf{ns }}}}$ · [dni & byi](https://rentry.co/awritersdiary) · 
+[ata](https://rat-dove.atabook.org/)${{\color{#969AD0}{\textsf{book }}}}$ · [ren](https://rentry.co/fyodorbunny)${{\color{#969AD0}{\textsf{try }}}}$
