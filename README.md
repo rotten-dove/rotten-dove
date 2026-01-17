@@ -8,9 +8,9 @@
 
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=969AD0&width=435&lines=“Man+fears+the+darkness.”)](https://git.io/typing-svg) 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=969AD0&width=435&lines=“If+I+die%2c+I+can+just+be+replaced.”)](https://git.io/typing-svg) 
 
-˚₊‧꒰ა ![](https://komarev.com/ghpvc/?username=rotten-dove&base=920&label=dead+souls&color=969AD0&style=plastic) ໒꒱ ‧₊˚
+˚₊‧꒰ა ![](https://komarev.com/ghpvc/?username=rotten-dove&base=920&label=angels+defeated&color=969AD0&style=plastic) ໒꒱ ‧₊˚
 
 </div>
 
