@@ -21,7 +21,7 @@
 
 ALSO UM. animation meme i just made. pls look at it i worked hard 💔
 
-![](https://file.garden/aUdioCvDzBVqDEbf/run%20runaway%20baby_20260120200603.png) 
-
 [link to the video :3](https://youtube.com/shorts/aKUiY9igjgg?si=2785jDP61kVvpNSx) 
+
+![](https://file.garden/aUdioCvDzBVqDEbf/run%20runaway%20baby_20260120200603.png) 
 
