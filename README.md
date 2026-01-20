@@ -18,3 +18,10 @@
   
   [pr](https://pronouns.cc/@fyobunny)${{\color{#969AD0}{\textsf{ns }}}}$ · [dni & byi](https://rentry.co/awritersdiary) · 
 [ata](https://rat-dove.atabook.org/)${{\color{#969AD0}{\textsf{book }}}}$ · [ren](https://rentry.co/fyodorbunny)${{\color{#969AD0}{\textsf{try }}}}$
+
+ALSO UM. animation meme i just made. pls look at it i worked hard 💔
+
+![](https://file.garden/aUdioCvDzBVqDEbf/runaway%20baby%20%5B82FDAC5%5D.mp4) 
+
+link to it if the video doesn't load here or wtv: https://youtube.com/shorts/aKUiY9igjgg?si=2785jDP61kVvpNSx
+
